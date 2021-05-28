@@ -1,4 +1,4 @@
-## **E chegamos a Lógica Aplicada II**
+## **E chegamos a Lógica Aplicada II...**
 
 Continuando a regra da semana passada, a figura abaixo me representa nos exercícios dessa semana:
 
